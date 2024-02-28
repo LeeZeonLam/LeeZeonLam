@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LeeZeonLam
 - I’m interested in programmer industry
 - I want to become infinitely stronger
-- 这里是 LeeZeonLam，李俊霖，英文名是粤语音译过来的说是
+- 这里是 LeeZeonLam(英文名是粤语音译过来的说是)、Ken、小火猴，出门在外身份是自己给的～
 - 我想靠自己的努力给予自己一点点回报🤏
 
 <!---
